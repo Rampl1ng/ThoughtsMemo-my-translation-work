@@ -1,0 +1,1 @@
+# ThoughtsMemo-my-translation-work
