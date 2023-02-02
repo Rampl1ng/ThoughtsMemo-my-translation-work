@@ -20,4 +20,4 @@ In the ultimate account, even if there is a displeasure related to exams, certif
 
 **Pleasurable learning can be buried in displeasure caused by stress, bad people, bad schools, bad textbooks, and more**.
 
-**愉快的学习可能会被淹没在压力、坏人、学校、烂教材等共同造成的不愉快中**。
+**愉快的学习可能会被淹没在压力、坏人、学校、烂教材等共同造成的不愉快中。**
